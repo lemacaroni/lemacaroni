@@ -15,3 +15,5 @@ i have experience in and have used debian back when bookworm was still stable bt
 i use a Lenovo ThinkPad T440p with Windows 7, so i cant really use Unity right now, which, for the current moment, it S U C K S .
 
 toodles
+
+P.S. i have a repo for a project called Hair Basics Revitalized is a fork of Hair Basics Classic, my friend Benefond approved it. dont believe me? start digging in the files twin
