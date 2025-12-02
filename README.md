@@ -3,7 +3,7 @@ greetings
 i dont even know where to start but uhh lets begin
 
 ive been on github since 2022, but spoiler alert:
-im sure it doesnt say so on my github profile because ive lost one account to 2FA chronicles ecks dee
+im sure it doesnt say so on my github profile because ive lost one account to 2FA chronicles ecks dee!
 i only started doing actual stuff on this site in like 2024 because yes!
 
 heres something really dumb i shouldnt put here:
