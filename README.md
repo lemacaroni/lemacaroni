@@ -7,7 +7,7 @@ im sure it doesnt say so on my github profile because ive lost one account to 2F
 i only started doing actual stuff on this site in like 2024 because yes!
 
 heres something really dumb i shouldnt put here:
-i also ship kris x ralsei, a weird deltarune ship
+i also ship kris x ralsei, a weird deltarune ship. now,
 dont worry, i know its awkward to say Lmao! but im at least trying to be normal
 
 i have experience in and have used debian back when bookworm was still stable btw
