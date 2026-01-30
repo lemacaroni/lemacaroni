@@ -16,4 +16,4 @@ i use a Lenovo ThinkPad T440p with Windows 7, so i cant really use Unity right n
 
 toodles
 
-P.S. i have a repo for a project called Hair Basics Revitalized is a fork of Hair Basics Classic, my friend Benefond approved it. dont believe me? start digging in the files twin
+P.S. i have a repo for a project called Hair Basics Revitalized is a fork of Hair Basics Classic, my friend Benefond approved it. dont believe me? start digging in the files twin (edit: its privated as im writing this edit so just trust me bro)
